@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @jojizxs
-Im a software engeenear student
+Im a software engineer student
